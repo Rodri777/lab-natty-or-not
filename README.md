@@ -81,3 +81,4 @@ O Gems representa um passo importante na construção de **agentes inteligentes 
 https://gemini.google.com/gem/1pPndY-VtH_AJslQV8x2ZfqMefv6lFmsi?usp=sharing
 
 ![Base10's Trend Map Generative AI](https://github.com/digitalinnovationone/lab-natty-or-not/assets/730492/f4df26e8-f8f7-4419-8252-c69d73ea930c)
+(https://media.licdn.com/dms/image/v2/D4E03AQFzNN17uo1xSg/profile-displayphoto-scale_200_200/B4EZtLoV1bIUAY-/0/1766500425833?e=1768435200&v=beta&t=Y-OQhvFYDYjH9mnsUN6UQmw-igws9_W3VQIAqlfYqn4)
